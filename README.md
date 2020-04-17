@@ -11,3 +11,5 @@ Spark the fire up and time to flood them some love.
 Let the 2020 journey begin!  
 
 ![](https://albertpark.me/cdn/albertpark-180x180.png)
+
+Year of the :rat:!
